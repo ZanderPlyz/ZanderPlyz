@@ -1,0 +1,5 @@
+- 👋 Hi, I’m ZanderPlyz
+- 👀 I’m interested in ... Gaming
+- 🌱 I’m currently learning ... Coding
+- 💞️ I’m looking to collaborate on ... Games
+- 📫 How to reach me ... Discord: ZanderPlyz#0001 Twitter: @ZanderPlyz
